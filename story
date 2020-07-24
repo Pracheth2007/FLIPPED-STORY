@@ -1,1 +1,2 @@
-Once upon a time, in a forest, there lived a monkey on a berry tree, which was  on the bank of river.
+Once upon a time, in a forest, there lived a monkey on a berry tree, which was  on the bank of a river. There lived a crocodile and 
+it's wife. One day, to the banks of the river and rested under the tree. The monkey shared fruits with them and they became friends.
